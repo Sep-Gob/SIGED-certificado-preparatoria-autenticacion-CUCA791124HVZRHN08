@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CUCA791124HVZRHN08
+CUCA791124HVZRHN08
